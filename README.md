@@ -22,3 +22,34 @@
 
 ![27 29](https://user-images.githubusercontent.com/93928146/147996451-54bcf2d5-76c1-4b92-bfe4-004c2be76a0b.PNG)
 
+
+
+
+
+
+
+PRUEBA 2.0
+
+
+
+
+
+![13](https://user-images.githubusercontent.com/93928146/148011613-f9401eab-7a25-4c6f-af4d-dc76718390c9.PNG)
+![17 19](https://user-images.githubusercontent.com/93928146/148011614-bb3dfdf6-c73e-469d-8e00-9dae0896fd41.PNG)
+![21 23](https://user-images.githubusercontent.com/93928146/148011615-e25a6e64-5401-4d44-9e19-9399c7c0eef1.PNG)
+![25](https://user-images.githubusercontent.com/93928146/148011616-7205f3de-6bd6-46ae-b8ca-079d7a3bbb45.PNG)
+![27 29](https://user-images.githubusercontent.com/93928146/148011619-6410fcc4-e194-4ff3-8d93-a09655381a67.PNG)
+![27 1](https://user-images.githubusercontent.com/93928146/148011620-30c39d55-1f44-4cdd-9f70-ae09dd074377.PNG)
+![29](https://user-images.githubusercontent.com/93928146/148011621-1fdb0eb1-cbdd-4c4a-9895-e4b2272c4c7b.PNG)
+![30 1](https://user-images.githubusercontent.com/93928146/148011622-bfbb81f8-58c2-49cf-bea1-5fb529aa112d.PNG)
+![30](https://user-images.githubusercontent.com/93928146/148011625-b7194f48-c755-4d78-83d3-b23f9f56f4e9.PNG)
+![33](https://user-images.githubusercontent.com/93928146/148011627-6dce2208-f9b6-486d-a417-e34f835b9b58.PNG)
+![1 3 5](https://user-images.githubusercontent.com/93928146/148011628-d7200771-f2b6-48f2-8f23-6a12a87d5e45.PNG)
+![7 1](https://user-images.githubusercontent.com/93928146/148011630-daa16888-d751-4a5a-90ae-270480b96ca4.PNG)
+![7](https://user-images.githubusercontent.com/93928146/148011631-59c80957-5bf4-464a-a2a7-d995ca149e9f.PNG)
+![9 1](https://user-images.githubusercontent.com/93928146/148011632-1c117c7b-bdc2-4fd8-a71e-d68cd5059f1b.PNG)
+![9](https://user-images.githubusercontent.com/93928146/148011633-372c040c-81a0-4eb4-84cd-d5776c50477f.PNG)
+![11 1](https://user-images.githubusercontent.com/93928146/148011635-06625347-3709-4d6e-a817-e26f3373b22f.PNG)
+![11 2](https://user-images.githubusercontent.com/93928146/148011636-470a04d7-53bd-4cd4-b929-c194020bedab.PNG)
+![11](https://user-images.githubusercontent.com/93928146/148011637-ca55cf6e-8d29-49d0-88d1-f6b393d15b23.PNG)
+![13 1](https://user-images.githubusercontent.com/93928146/148011638-6c50f8ad-e45d-4931-a3e7-42a20c523bab.PNG)
